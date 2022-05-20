@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Omair Ahmed
+- 👀 I’m interested in Data Management, Basketball🏀 And Automobile
+- 🌱 I’m currently learning CS in california minors virtually
+- 💞️ I’m looking to collaborate on Instagram @frickinnomairr_
+- 📫 How to reach me : 304, Prime View, Section 30, Kharghar, 410210, India
+                                                                            -THANK YOU
